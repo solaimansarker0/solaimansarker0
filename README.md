@@ -6,6 +6,9 @@ I also create creative and memorable Logo Designs that strengthen brand identity
 
 Skills: Clipping Path /Background Remove/Background Replacement/Shadows/Reflection/Colour Enhancing/Retouching/Logo Design/Off-Page Seo
 
+#Transparent Background
+-We provide clean and precise Transparent Background services, ensuring your product or image looks professional, sharp, and ready for e-commerce, branding, printing, or digital use with high-quality cut-outs.
+![Image](https://github.com/user-attachments/assets/7af823f7-6581-4ce1-9429-2d2f9ab67964)
 - 🔭 I’m currently working on Fiverr 
 - 🌱 I’m currently learning Digital Marketing 
 - 👯 I’m looking to collaborate on car photo editing services 
