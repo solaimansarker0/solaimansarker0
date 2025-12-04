@@ -22,7 +22,7 @@
 ## 📂 Featured Projects
 ### 🚗 **Car Background Replace Tool**
 A small project showing before/after editing samples.  
-➡ Repo Link: (your repository link)
+➡ Repo Link: [(your repository link)](https://fiverr-res.cloudinary.com/images/q_auto,f_auto/gigs2/234040505/original/c4eec8e70c2036a95e05247c7b10b2d0d231431f/background-replacement-and-drop-shadow.jpg)
 
 ### 🖼 **Photo Editing Showcase**
 Your best editing works in a GitHub repo.  
