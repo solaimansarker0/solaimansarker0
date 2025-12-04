@@ -20,12 +20,59 @@ We deliver accurate Clipping Path services with clean edges and precise cut-outs
 # Transparent Background
 
 We provide clean and precise Transparent Background services, ensuring your product or image looks professional, sharp, and ready for e-commerce, branding, printing, or digital use with high-quality cut-outs.
+
+
 ![Image](https://github.com/user-attachments/assets/7af823f7-6581-4ce1-9429-2d2f9ab67964)
 
 
 
 
+# Drop/natural Shadows
 
+We are creating natural and realistic Drop Shadows that enhance product depth, making images look professional.
+
+
+![Image](https://github.com/user-attachments/assets/8bb3d27a-e1f7-43ab-b5fb-2e6e723b674e)
+
+
+
+
+# Background Replacement
+
+We provide professional Car Background Replacement services, giving your vehicles a clean, attractive, and customised backdrop that enhances visual appeal, boosts sales, and ensures a polished, high-quality presentation.
+
+
+![Image](https://github.com/user-attachments/assets/5ec9cadb-a00c-4e85-9da3-3d9a9dafef37)
+
+
+
+
+# Reflection Shadows
+
+We are creating realistic Reflection Shadows to give images a professional, 3D look, enhancing depth and appeal. Perfect for product photos, car images, and high-quality eCommerce or portfolio visuals.
+
+
+![Image](https://github.com/user-attachments/assets/68843929-4b6c-49f1-b5bb-9fa65992e521)
+
+
+
+
+# Colour Enhancing
+
+We provide professional colour-enhancing services to make images vibrant and visually striking. Perfect for product photos, car images, and eCommerce visuals, ensuring every detail looks bright and appealing.
+
+
+![Image](https://github.com/user-attachments/assets/988480fc-3d2f-4ad9-8a41-3d27953589da)
+
+
+
+
+# Retouching
+
+We offer professional Retouching services to remove imperfections, enhance details, and refine images. Ideal for portraits, product photos, and car images, ensuring a flawless, polished, and high-quality visual presentation.
+
+
+![Image](https://github.com/user-attachments/assets/664b8c98-4c58-477a-8d7c-25bcd57672bf)
 
 
 
