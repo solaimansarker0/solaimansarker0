@@ -1,4 +1,4 @@
-![I am a Car Photo Editing and Graphic Designer specialist](www.linkedin.com/in/solaiman0)
+![I am a Car Photo Editing and Graphic Designer specialist](https://www.facebook.com/mdsolaimansarker0/)
 # Hi there 👋, I'm Solaiman
 #### I am a Car Photo Editing and Graphic Designer specialist
 I am a professional Photo Editing and Graphic Design expert specialising in Clipping Path, Background Removal, Background Replacement, Shadows, Reflection, Colour Enhancing, and Retouching. I deliver clean, high-quality images with precise cut-outs, natural shadows, and realistic reflections for product photos, car images, and eCommerce visuals. My editing ensures your images look polished, professional, and ready to boost sales and brand appeal.
